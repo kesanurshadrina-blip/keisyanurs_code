@@ -6,7 +6,7 @@ Membuat dimsum sendiri di rumah sebenarnya cukup sederhana. Kunci utamanya terle
 * **Daging:** Campuran udang dan paha ayam giling (lebih juicy daripada dada) dan udang kupas yang dicincang kasar.
 * **Tepung:** Tepung tapioka atau sagu untuk memberikan tekstur kenyal.
 * **Bumbu:** Bawang putih halus, minyak wijen (penting untuk aroma khas dimsum), saus tiram, garam, gula, dan lada bubuk.
-* **Sayuran:** Parutan wortel atau irisan daun bawang untuk campuran adonan dan hiasan di atasnya.
+* **Sayuran:** Parutan wortel atau irisan daun bawang dan juga labu hijau untuk campuran adonan dan hiasan di atasnya.
 * **Pembungkus:** Kulit dimsum atau kulit pangsit siap pakai.
 
 ### Langkah-langkah Pembuatan:
